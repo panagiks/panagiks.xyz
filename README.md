@@ -1,1 +1,0 @@
-panagiks.xyz
